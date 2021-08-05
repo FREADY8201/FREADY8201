@@ -3,7 +3,10 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
+https://www.dropbox.com/s/cisnliypbh0u4mo/h2gh5gztypm7%25lyf%40.pdf?dl=0
 
+https://www.dropbox.com/s/cisnliypbh0u4mo/H2Gh5gZtYpM7%25LyF%40.pdf?dl=0
+https://www.valuedopinions.com/signup
 <!---
 FREADY8201/FREADY8201 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
